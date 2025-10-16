@@ -1,2 +1,2 @@
 # Richard-DZIDZINYO
-Portfolio Kodzo Richard DZIDZINYO
+Portfolio Kodzo Richard DZIDZINYO : Data Analyst
